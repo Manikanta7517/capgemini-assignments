@@ -1,1 +1,3 @@
-# capgemini-assignments
+HII..
+HERE I WILL UPLOAD CAPGEMINI ASSIGNMENTS
+THANKYOU..
